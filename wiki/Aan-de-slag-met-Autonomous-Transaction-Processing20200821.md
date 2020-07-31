@@ -1,3 +1,12 @@
+
+Hartelijk dank voor uw interesse in het Get started met Oracle Cloud Series: Aan de slag met Autonomous Transaction Processing
+
+Beste Peter Bosch, 
+
+Bedankt voor uw belangstelling voor Get started met Oracle Cloud Series: Aan de slag met Autonomous Transaction Processing, op Vrijdag, 21 augustus 2020, 10:00 - 12:00 uur (CET) Omdat dit een workshop is met een maximaal aantal plekken, bent u op dit moment in de virtuele wachtrij geplaatst. Zodra uw plek is gereserveerd ontvangt u een bevestigingsmail met daarin de inloggegevens.
+Hartelijk dank!,
+
+
 Get started met Oracle Cloud Series: Aan de slag met Autonomous Transaction Processing
 Vrijdag, 21 augustus I 10:00 - 12:00 uur CET
 
